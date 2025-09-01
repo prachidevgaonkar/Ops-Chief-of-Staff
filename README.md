@@ -36,11 +36,11 @@ It’s a chance to scale ops like never before and align teams around a mission 
 ---
 
 ## 😂 5. Something Funny Recently (Comic Relief)  
-Saw a meme:  
+**Motivational Speaker AI**  
 > **Me:** “Give me a productivity tip.”  
-> **AI:** “Delete the calendar. Time is fake.”  
+> **AI:** “Delete the calendar. Time is fake.” ⏳🙃  
 
-Had me laughing because, yeah, I’ve seen AI take that chaotic side quest IRL. 🤖😂  
+Not sure if it’s good life advice, but it definitely made me laugh.  
 
 ---
 
